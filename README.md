@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Loryfull
-- 👀 I’m interested in  la programmazione, ma mi piace tanto la chimica
+- 👀 I’m really interested in programming even though, however, I never come up with anything good
 - 🌱 I’m currently learning ![image](https://user-images.githubusercontent.com/96731867/164888013-9b8a5107-aaea-4af8-99ed-5cac9e1228a0.png
 - 💞️ Sto cercando di collaborar con nessuno 
 - 📫 How to reach me  Discord, stesso nickname
